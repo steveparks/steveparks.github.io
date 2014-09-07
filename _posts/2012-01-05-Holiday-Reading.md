@@ -1,0 +1,44 @@
+---
+layout: post
+title: Holiday Reading
+categories: 
+tags: Reading
+redirect_from: "/2012/01/05/holiday-reading/"
+---
+
+
+I'm back from a short break over Christmas and the New Year. Most of the time was spent catching up with friends and family over long meals - but I also managed some time to read.
+
+Here are the books, and my notes:
+
+<a style="float: left; margin: 5px;" href="http://www.amazon.co.uk/gp/product/1844086097/ref=as_li_ss_il?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=1844086097"><img src="http://ws.assoc-amazon.co.uk/widgets/q?_encoding=UTF8&amp;Format=_SL160_&amp;ASIN=1844086097&amp;MarketPlace=GB&amp;ID=AsinImage&amp;WS=1&amp;tag=flyingstartup-21&amp;ServiceVersion=20070822" alt="" border="0" /></a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=1844086097" alt="" width="1" height="1" border="0" />
+<a href="http://www.amazon.co.uk/gp/product/1844086097/ref=as_li_ss_tl?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=1844086097">The Return Of Captain John Emmett</a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=1844086097" alt="" width="1" height="1" border="0" />
+This was billed as 'the new Birdsong', but it really wasn't. The only similarity was the period in which the stories were set. However, it was a good light read. Well plotted, well written and entertaining.
+
+
+<br style="width: 100%; clear: left;" />
+<a style="float: left; margin: 5px;" href="http://www.amazon.co.uk/gp/product/0330513966/ref=as_li_ss_il?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=0330513966"><img src="http://ws.assoc-amazon.co.uk/widgets/q?_encoding=UTF8&amp;Format=_SL160_&amp;ASIN=0330513966&amp;MarketPlace=GB&amp;ID=AsinImage&amp;WS=1&amp;tag=flyingstartup-21&amp;ServiceVersion=20070822" alt="" border="0" /></a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=0330513966" alt="" width="1" height="1" border="0" />
+<a href="http://www.amazon.co.uk/gp/product/0330513966/ref=as_li_ss_tl?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=0330513966">The Stranger's Child</a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=0330513966" alt="" width="1" height="1" border="0" />
+This novel took a very interesting approach - examining the ripples out from the key moments of connection between a few people, and the effects they have on many others down the generations. The story is approached through the, perhaps self-censored or aggrandising, memories of those people, and also by biographers who write about them later, with their own agendas. Piece by piece you learn more, but are left to make up your own mind - and end up thinking about it for some days later. I recommend this.
+
+
+<br style="width: 100%; clear: left;" />
+<a style="float: left; margin: 5px;" href="http://www.amazon.co.uk/gp/product/1780330960/ref=as_li_ss_il?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=1780330960"><img src="http://ws.assoc-amazon.co.uk/widgets/q?_encoding=UTF8&amp;Format=_SL160_&amp;ASIN=1780330960&amp;MarketPlace=GB&amp;ID=AsinImage&amp;WS=1&amp;tag=flyingstartup-21&amp;ServiceVersion=20070822" alt="" border="0" /></a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=1780330960" alt="" width="1" height="1" border="0" />
+<a href="http://www.amazon.co.uk/gp/product/1780330960/ref=as_li_ss_tl?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=1780330960">A Visit From the Goon Squad</a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=1780330960" alt="" width="1" height="1" border="0" />
+This won the Pulitzer prize so I started with high expectations, which weren't quite met. The author is clearly talented and creative though, and the mesh of characters and their situations came to life as we hopped between their stories, all told in different styles - including one as a series of powerpoint slides reproduced on the page. Intriguing, but not totally engaging.
+
+<br style="width: 100%; clear: left;" />
+<a style="float: left; margin: 5px;" href="http://www.amazon.co.uk/gp/product/184724789X/ref=as_li_ss_il?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=184724789X"><img src="http://ws.assoc-amazon.co.uk/widgets/q?_encoding=UTF8&amp;Format=_SL160_&amp;ASIN=184724789X&amp;MarketPlace=GB&amp;ID=AsinImage&amp;WS=1&amp;tag=flyingstartup-21&amp;ServiceVersion=20070822" alt="" border="0" /></a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=184724789X" alt="" width="1" height="1" border="0" />
+<a href="http://www.amazon.co.uk/gp/product/184724789X/ref=as_li_ss_tl?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=184724789X">Dead Line</a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=184724789X" alt="" width="1" height="1" border="0" />
+Ok - this one was my airport thriller! It's written by Dame Stella Rimmington, who ought to know a thing or two about how to make a spy adventure realistic following her career running MI5. But this is just a bit too formulaic and unbelievable, and a little frustrating as a result.
+
+<br style="width: 100%; clear: left;" />
+<a style="float: left; margin: 5px;" href="http://www.amazon.co.uk/gp/product/0670919519/ref=as_li_ss_il?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=0670919519"><img src="http://ws.assoc-amazon.co.uk/widgets/q?_encoding=UTF8&amp;Format=_SL160_&amp;ASIN=0670919519&amp;MarketPlace=GB&amp;ID=AsinImage&amp;WS=1&amp;tag=flyingstartup-21&amp;ServiceVersion=20070822" alt="" border="0" /></a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=0670919519" alt="" width="1" height="1" border="0" />
+<a href="http://www.amazon.co.uk/gp/product/0670919519/ref=as_li_ss_tl?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=0670919519">The Personal MBA: A World-Class Business Education in a Single Volume</a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=0670919519" alt="" width="1" height="1" border="0" />
+This was my business book allowance. A series of quickfire articles on key business ideas, which made for a good stimulating read to dip into from time to time. I recommend this.
+
+
+<br style="width: 100%; clear: left;" />
+<a style="float: left; margin: 5px;" href="http://www.amazon.co.uk/gp/product/1780330995/ref=as_li_ss_il?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=1780330995"><img src="http://ws.assoc-amazon.co.uk/widgets/q?_encoding=UTF8&amp;Format=_SL160_&amp;ASIN=1780330995&amp;MarketPlace=GB&amp;ID=AsinImage&amp;WS=1&amp;tag=flyingstartup-21&amp;ServiceVersion=20070822" alt="" border="0" /></a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=1780330995" alt="" width="1" height="1" border="0" />
+<a href="http://www.amazon.co.uk/gp/product/1780330995/ref=as_li_ss_tl?ie=UTF8&amp;tag=flyingstartup-21&amp;linkCode=as2&amp;camp=1634&amp;creative=19450&amp;creativeASIN=1780330995">Look at Me</a><img style="border: none!important; margin: 0!important;" src="http://www.assoc-amazon.co.uk/e/ir?t=flyingstartup-21&amp;l=as2&amp;o=2&amp;a=1780330995" alt="" width="1" height="1" border="0" />
+This one is by the same author as 'A visit from the Goon Squad' above. In that I saw the talent of the author, but didn't get hugely into the novel, so I decided to try another of hers - and am finding this one much more absorbing, and more thought provoking too. I recommend this one.

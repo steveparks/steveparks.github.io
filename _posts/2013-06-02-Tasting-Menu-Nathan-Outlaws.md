@@ -3,6 +3,7 @@ layout: post
 title: The Tasting Menu At Nathan Outlaw's in Cornwall
 categories: Food
 tags: Cornwall, Seafood
+redirect_from: "/2013/06/02/the-tasting-menu-at-nathan-outlaws/"
 ---
 
 ![Salmon Starter](https://farm4.staticflickr.com/3691/11656883324_87d31a9cbd_b.jpg)
