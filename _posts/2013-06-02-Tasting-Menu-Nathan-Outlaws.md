@@ -5,7 +5,7 @@ categories: Food
 tags: Cornwall, Seafood
 ---
 
-![Salmon Starter](https://farm4.staticflickr.com/3789/11657156563_c31e8012c1_b.jpg)
+![Salmon Starter](https://farm4.staticflickr.com/3691/11656883324_87d31a9cbd_b.jpg)
 
 Over the bank holiday weekend I made one of my regular excursions to Cornwall for some hiking and relaxation. But this time there was going to be less hiking, more relaxation — and one of the treats I was looking forward to was dinner at Nathan Outlaw's two Michelin starred restaurant in Rock.
 
