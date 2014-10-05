@@ -6,6 +6,8 @@ tags: cooking
 redirect_from: "/2012/04/02/cooking-steak/"
 ---
 
+![Cooking Steak](https://farm4.staticflickr.com/3901/14982200020_3e1f2859b0_b.jpg)
+
 Steak is such a treat that I think it's worth learning to cook it really well. I was interested to see some advice from Heston Blumenthal recently that went against the grain, and so I decided it had to be tried. At first I'm experimenting with cheaper cuts of steak from Waitrose - but the aim is to perfect my technique so that I feel it's worth spending on the better cuts from a top quality butcher.
 
 Following Heston's advice I took the steak out of its packaging and rested it uncovered on a rack on top of a plate in the fridge. He suggested leaving it for 2 days, but I only had a day. Then, a couple of hours before cooking time I took it out, and left it on the worktop to reach room temperature.
