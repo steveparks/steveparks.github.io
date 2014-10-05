@@ -2,8 +2,8 @@
 layout: post
 title: A Scandinavian Brunch
 categories: Food
-tags: Hiking, Walking, Wales
-redirect_from: "/2012/04/14/scandinavian-brunch/ "
+tags: Scandinavia, Supperclub
+redirect_from: "/2012/04/14/scandinavian-brunch/"
 ---
 
 ![Scandinavian Brunch](https://farm4.staticflickr.com/3871/15167613392_2a4c2c190d_b.jpg)
