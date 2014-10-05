@@ -14,7 +14,7 @@ The evening was hosted at the Divertimenti cookery school, and took the form of 
 
 ## Canapes
 
-![Canapes](https://farm4.staticflickr.com/3848/15167475432_0ccf5b7379_b.jpg" width="1024" height="768" alt="P1020651.jpg)
+![Canapes](https://farm4.staticflickr.com/3848/15167475432_0ccf5b7379_b.jpg)
 
 First up were the canapés. On the left are crackers with cream cheese and Alexander leaves (a plant that's popular with foragers, the leaves taste somewhere between celery and parsley). On the right is the House Cured Beef with Horseradish. The beef was made from a relatively new cut that's increasingly popular with chefs - the 'featherblade'. This cut is generally cooked very very slowly, but Ben decided to see how it would work when cured. He rubbed it generously in salt, and then smoked it lightly with fir. Then he wrapped it in Muslin and hung it in the fridge for 6 months. The result is delicious - flavoursome and melting.
 
