@@ -15,17 +15,15 @@ Browsing along the rows I found a number of different titles, all with his name 
 
 This motivated me to write more myself. I'd written some simple stories, but eventually I decided to write a whole book. And so, at the age of nine or ten, I published 'The Secret Trail', an action adventure starring me and my friends, with an exclusive print run of one. The book ran to a hundred pages, and, as you can probably tell, I even designed the cover myself with the help of a stencil and some stickers.
 
-
+![The Secret Trail](https://farm6.staticflickr.com/5554/14982158828_5cc2d65f1c_b.jpg)
 
 My career as a designer was shortlived, but the desire to write persisted. I became a journalist first of all, but eventually, in my early thirties, I got the chance to write professionally when I was commissioned by Pearson to write Start Your Business Week by Week.
 
 That sold well, so they commissioned some more. A few of them were translated, and gradually I've been building up my own small bookshelf, just as I imagined when I was seven.
 
-
+![A special bookshelf](https://farm6.staticflickr.com/5587/15165296351_b333939941_b.jpg)
 
 It may just be a small collection, but I'm really proud of it. So, it was with some excitement that I opened a package from my publisher yesterday to find the advance copies of the new edition of my first book.
-
-
 
 I'm pleased to say that the novelty doesn't wear off - having a book published still brings me as much excitement as it did the first time - so I'm bound to be nipping into Waterstones and WHSmith to check their stock levels and display.
 
