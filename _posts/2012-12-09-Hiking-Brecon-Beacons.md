@@ -10,7 +10,7 @@ redirect_from: "/2012/12/09/hiking-in-the-brecon-beacons/"
 
 I've just returned from a great weekend trip to the Brecon Beacons in Wales, with hiking in some stunningly beautiful countryside...
 
-![Sign to Pant I Rhew](https://farm4.staticflickr.com/3950/15529878032_f27db3d98c_b.jpg" width="1024" height="575" alt="2012-12-08 13.48.44.jpg)
+![Sign to Pant I Rhew](https://farm4.staticflickr.com/3950/15529878032_f27db3d98c_b.jpg)
 
 ![Canal](https://farm4.staticflickr.com/3948/15343693750_ce75f56d27_b.jpg)
 

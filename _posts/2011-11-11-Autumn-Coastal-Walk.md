@@ -6,7 +6,7 @@ tags: Hiking, Walking, SWCP, Devon
 redirect_from: "/2011/11/11/an-autumn-coastal-walk/"
 ---
 
-
+![](https://farm6.staticflickr.com/5599/15424163796_26432b356e_b.jpg)
 
 After a busy few months (years), I've escaped to the South West of England for a few days of holiday.
 
@@ -19,6 +19,8 @@ I drove down from London last night, and arrived at the Inn through winding narr
 This morning I woke up early and set off after a hearty breakfast.
 
 At the start of the walk, I got my first proper view of the Inn in daylight.
+
+![](https://farm4.staticflickr.com/3939/15515652651_b3beb143ff_b.jpg)
 
 ![](https://farm4.staticflickr.com/3924/15164967121_606551e1f1_b.jpg)
 
@@ -45,8 +47,6 @@ With the beautiful autumn colours of the ferns.
 ![](https://farm6.staticflickr.com/5593/15158537676_19ce683e83_b.jpg)
 
 ![](https://farm4.staticflickr.com/3934/15260851498_dab9bda193_b.jpg)
-
-![](https://farm6.staticflickr.com/5599/15424163796_26432b356e_b.jpg)
 
 
 It was a drizzly day, creating a slightly muddy path, and you really wouldn't want to slip...
