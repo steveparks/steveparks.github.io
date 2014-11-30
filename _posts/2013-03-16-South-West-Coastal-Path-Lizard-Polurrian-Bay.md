@@ -36,4 +36,5 @@ So, even though the sun came out, we were exhausted (and some wanted to watch th
 
 
 This walk is shown in blue on the map below:
+
 <iframe width="640" height="480" frameborder="0" scrolling="no" marginheight="0" marginwidth="0" src="https://maps.google.co.uk/maps/ms?msa=0&amp;msid=212953854698210254239.0004d8c78e1b4bc40f487&amp;ie=UTF8&amp;t=p&amp;source=embed&amp;ll=49.992953,-5.192757&amp;spn=0.105944,0.219727&amp;z=12&amp;output=embed"></iframe><br /><small>View <a href="https://maps.google.co.uk/maps/ms?msa=0&amp;msid=212953854698210254239.0004d8c78e1b4bc40f487&amp;ie=UTF8&amp;t=p&amp;source=embed&amp;ll=49.992953,-5.192757&amp;spn=0.105944,0.219727&amp;z=12" style="color:#0000FF;text-align:left">South-West Coastal Path</a> in a larger map</small>
