@@ -217,7 +217,9 @@ A bit about me, I hate corporations. I think they are all monsters, using every 
 
 My second example is books. When Amazon first started selling books, prices were (and still are, actually) set by the publisher. This price was 13.99 for a hard cover book. Most companies mark up prices from here, selling these hard cover books for some sort of profit. I’m sure you’ve seen the price of a hard cover book before, so you have a better estimation of the actual price off the shelf. However, Amazon sold these books at $6.99, nearly a 50% loss. Some people were upset, mainly other retailers, because Amazon was undercutting them. Its a dirty business trick. But lets take a step back and look at who this benefited. It wasn’t Amazon, or the publishers, or shareholders, or other retailers. It helped you. You have been the primary focus of this business since day one, and that is why I support this company, so much so that I wrote this today to help educate people about this truly amazing company.
 
-
-
-
-
+### 16/11/2014 Email from Tracey
+I have had my Kindle for approx. 18 months and it has done the same thing.  Lines on the screen.  Won’t restart.  Busted. It is in a hard case and has been looked after.
+What adds to this is that I bought one for my son and it was also kept in a hard case and he promised looked after but when his developed lines after almost 2 years I assumed that despite his assurances that he had misused it.  I need to apologise to my son!
+I will try Amazon but am not feeling hopeful.
+Regards
+Tracey
