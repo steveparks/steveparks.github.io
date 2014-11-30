@@ -71,8 +71,10 @@ We had some time to explore the beach and the rocks before moving off again. As 
 
 
 Finally we neared Coverack, and our destination of the Paris Hotel for some well earned beers. But first, a surprise - the sculptor Terence Coventry has opened a sculpture park on the cliffs.
+
 <iframe width="640" height="360" src="//www.youtube.com/embed/L2Y2EDhazCg" frameborder="0" allowfullscreen></iframe>
 
 
 This walk is shown in green on the map below:
+
 <iframe width="640" height="480" frameborder="0" scrolling="no" marginheight="0" marginwidth="0" src="https://maps.google.co.uk/maps/ms?msa=0&amp;msid=212953854698210254239.0004d8c78e1b4bc40f487&amp;ie=UTF8&amp;t=p&amp;source=embed&amp;ll=49.992953,-5.192757&amp;spn=0.105944,0.219727&amp;z=12&amp;output=embed"></iframe><br /><small>View <a href="https://maps.google.co.uk/maps/ms?msa=0&amp;msid=212953854698210254239.0004d8c78e1b4bc40f487&amp;ie=UTF8&amp;t=p&amp;source=embed&amp;ll=49.992953,-5.192757&amp;spn=0.105944,0.219727&amp;z=12" style="color:#0000FF;text-align:left">South-West Coastal Path</a> in a larger map</small>
