@@ -21,7 +21,11 @@ That 'something' is not just about the sound from vinyl, which does add a certai
 
 It's all I can do now to stay away from Ebay and resist buying an old turntable. I've only just whittled down my CD colection by ripping it all to digital - I don't want to accumulate piles of records again.
 
-Or do I?...
+With every technological advance we do seem to give something up. Some human element, some emotional connection.
+
+But then we gain so much else - convenience, portability, choice, savings, discovery and much more.
+
+So am I going to buy a turntable? No. But tonight I'm only going to listen to whole albums from beginning to end, as they were created for me to enjoy.
 
 
 
