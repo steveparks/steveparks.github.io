@@ -23,7 +23,7 @@ Then, this week, Lloyd Cole (formerly backed by The Commotions, now solo since t
 
 He linked to a Wikipedia page on something called the [Loudness Wars](http://en.wikipedia.org/wiki/Loudness_war).
 
-It seems that what I tried to write off as romatic notions of the past is actually more than that. The recordings have all been remastered in order to release the CD and download versions - and those remasters have wrecked the sound the artists intended.
+It seems that what I tried to write off as romantic notions of the past is actually more than that. The recordings have all been remastered in order to release the CD and download versions - and those remasters have wrecked the sound the artists intended.
 
 Later, when Lloyd had digitised the masters he had recieved he posted a screenshot showing the different waveforms from the original master, and then the processed version, remastered for the CD release - both of the album 'Rattlesnakes':
 
