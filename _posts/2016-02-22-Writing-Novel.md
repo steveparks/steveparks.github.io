@@ -14,10 +14,10 @@ The jump to fiction was going to be a leap for me, so to support me through the 
 So far I've developed the story idea, plotted it out, and have written just over half of the first draft. From now on I'll blog about my progress and learning too.
 
 ## My Story
-I've decided to write a thriller, based on the theme of mass surveillance via technology, our love of smartphones, and the rise of technologically savvy enemies.
+I've decided to write a thriller, based on the theme of mass surveillance via technology, our love of smartphones, and the rise of technologically-savvy enemies.
 
-My current pitch:
-**Entrepreneur Aila Grant lands substantial investment for her smartphone game, and moves to Silicon Valley to make her name. But then she discovers who is really behind the money, and what her app being on hundreds of millions of phones allows them to do.**
+My current pitch (it will need lots of work in the coming months):
+**Entrepreneur Aila Grant lands substantial investment for her smartphone game, and moves to Silicon Valley to make her name. But then she discovers who is really behind the money, and what her app being on hundreds of millions of phones allows them to do. To save her life, and thousands of others, she has to fight to destroy everything she dreamed of.**
 
 I wasn't able to make it to the first week of the Curtis Brown workshops, so I made a short video to introduce myself and my book:
 
