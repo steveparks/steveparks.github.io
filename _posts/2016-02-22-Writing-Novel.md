@@ -22,3 +22,4 @@ My current pitch (it will need lots of work in the coming months):
 I wasn't able to make it to the first week of the Curtis Brown workshops, so I made a short video to introduce myself and my book:
 
 <iframe src="https://player.vimeo.com/video/153707144" width="800" height="450" frameborder="0" webkitallowfullscreen mozallowfullscreen allowfullscreen></iframe>
+The video was recorded in a hurry, in one take - so there is a correction: I started to want to write at about age 8, but wrote The Secret Trail when I was aged 9-10.
