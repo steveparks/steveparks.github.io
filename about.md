@@ -10,15 +10,13 @@ Here are more details about each of my areas of work and interest:
 
 ## Work
 
-I’m one of the founders of WunderRoot, a web consultancy for large organisations and government, with 140 staff in 9 countries across Europe.
-
-We work in open source software, and the Drupal content management framework in particular.
+I’m one of the founders of Wunder, a web consultancy for large organisations and government, with 170 staff in 9 countries across Europe.
 
 ## Writer & Presenter
 
-I write books and articles about entrepreneurship, business and technology. My books are published by Pearson’s Prentice Hall Business imprint in the UK and by other publishers internationally. You can find out more at my Amazon author page.
+I write books and articles about entrepreneurship, business and technology. My books are published by Pearson in the UK and by other publishers internationally. You can find out more at my Amazon author page.
 
-I also present on stage at large business events and conferences (often acting as the host or moderator for the event too). I also present live web TV programmes about business for companies such as Natwest and BT.
+I also present on stage at events and conferences (often acting as the host or moderator for the event too).
 
 ## Leisure
 
@@ -26,3 +24,4 @@ Above all else, I’m a foodie – whether eating out or cooking at home. You’
 
 Other than that you’ll find me hiking (I’m doing the South West coastal path stage by stage), sailing, climbing, or just generally outdoors.
 
+I'm a keen wine and whisky fan too.
