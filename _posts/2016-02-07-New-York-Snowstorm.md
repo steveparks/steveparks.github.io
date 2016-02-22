@@ -56,3 +56,5 @@ Travelwise. As this wasn't a trip needed by work, I paid for it myself. I flew e
 In conclusion, I think I'd repeat the experiment, but would probably choose somewhere that has less of a timezone shift or is warmer - or I would go for longer. I'd also try to blag an upgrade on the plane, but probably wouldn't pay for it if it was increased the price by more than a third.
 
 It was a great week, and I'll be blogging from more of my working away trips in 2016.
+
+You can view my Flickr [album of photos from my New York trip](https://www.flickr.com/photos/stephenparks/albums/72157663857319686).
