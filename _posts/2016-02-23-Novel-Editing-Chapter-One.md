@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Novel: Editing Chapter One
+title: Novel - Editing Chapter One
 categories: Writing
 tags: Writing, Novel
 ---
