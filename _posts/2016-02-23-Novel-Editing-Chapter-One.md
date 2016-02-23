@@ -17,13 +17,13 @@ As the feedback was so immensely helpful, I thought I would share the key points
 ## Improvement: Point Of View
 In a couple of the scenes, I slipped very briefly into a different character's point of view. So, for example, the opening scene is from the point of view of the antagonist, Robert Walsh, but then there'd be this line from one of the protagonists:
 
-    "Sixteenth century." said James, pleased to be starting with something easy.
+>"Sixteenth century." said James, pleased to be starting with something easy.
 
 This suddenly lets us into James's head, which is a switch of viewpoint. That's okay if you're writing as a 'God' omniscient narrator, but then you have to be really consistent with that and consciously make it work. I'd slipped into it by accident.
 
 To keep it working in this scene, written from Walsh's viewpoint, I've now edited it to:
 
-    “Sixteenth century.” said James, seeming to relax a little at the easy opening.
+>“Sixteenth century.” said James, seeming to relax a little at the easy opening.
 
 In addition, it was pointed out that in one of my scenes, it wasn't clear who's viewpoint it was, so I tightened that up.
 
@@ -38,24 +38,24 @@ The power of the novel is to also let us into character's heads in a way that ca
 
 So, putting this into action a dry piece of dialogue like this:
 
-    "The last week I've done Berlin, Tallinn, and then yesterday into London."
+>"The last week I've done Berlin, Tallinn, and then yesterday into London."
 
-    "And now Yorkshire."
+>"And now Yorkshire."
 
-    "Absolutely."
+>"Absolutely."
 
-    "We'd have happily gone back down to London."
+>"We'd have happily gone back down to London."
 
 
 Has now become:
 
-    "The last week I’ve done Berlin, Tallinn, and then yesterday into London.”
+>"The last week I’ve done Berlin, Tallinn, and then yesterday into London.”
 
-    “And now Yorkshire.” James said. Not a question, but a touch of surprise in his voice.
+>“And now Yorkshire.” James said. Not a question, but a touch of surprise in his voice.
 
-    “Absolutely.” Walsh said.
+>“Absolutely.” Walsh said.
 
-    “We’d have happily gone back down to London?” James said. Now this was subtly posed as a question — probably probing for how keen Walsh was on them. Make them feel special, but not too special.
+>“We’d have happily gone back down to London?” James said. Now this was subtly posed as a question — probably probing for how keen Walsh was on them. Make them feel special, but not too special.
 
 This gives a bit more insight, and starts us thinking about how the protagonist is perhaps a little manipulative.
 
