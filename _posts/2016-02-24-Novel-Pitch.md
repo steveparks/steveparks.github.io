@@ -24,23 +24,23 @@ And, from these points ad the style of the sentence the genre should be automati
 
 Previously, this is how I've pitched my novel:
 
-    Entrepreneur Aila Grant lands $5m of investment for her smartphone app and moves to San Francisco. But then she discovers who is really behind the money, and what her app being on millions of phones enables them to do.
+> Entrepreneur Aila Grant lands $5m of investment for her smartphone app and moves to San Francisco. But then she discovers who is really behind the money, and what her app being on millions of phones enables them to do.
 
 But that doesn't really show how powerful the antagonist is, what the stakes are, or how the action will play out.
 
 So this evening I had another go. Here's my first attempt:
 
-    Entrepreneur Aila Grant moves from the Yorkshire Dales to San Francisco when she lands $5m of funding for her smartphone app — but discovers the investment company is a front enabling the CIA to spy on the public. As she fights to stop this, there’s an attempt on her life, so she goes on the run — and finds the real enemy is worse than even the CIA. She must fight to prevent a catastrophic terrorist attack, and to stay alive.
+> Entrepreneur Aila Grant moves from the Yorkshire Dales to San Francisco when she lands $5m of funding for her smartphone app — but discovers the investment company is a front enabling the CIA to spy on the public. As she fights to stop this, there’s an attempt on her life, so she goes on the run — and finds the real enemy is worse than even the CIA. She must fight to prevent a catastrophic terrorist attack, and to stay alive.
 
 That's better in covering the points listed, and hinting that this is a thriller - but it still didn't quite click for me - and it's a bit long.
 
 Here's my second attempt:
 
-    After moving from Yorkshire to San Francisco on landing investment for her hit app, young entrepreneur Aila Grant discovers the CIA are behind the funding. When she fights their plans to spy on the public there is an attempt on her life, so she goes on the run — and finds that their actions have also provided access to millions of phones to a terrorist group planning to carry out the largest attack in history. While evading the world’s intelligence agencies, Aila has to use her wits and creativity to save thousands of lives — including her own.
+> After moving from Yorkshire to San Francisco on landing investment for her hit app, young entrepreneur Aila Grant discovers the CIA are behind the funding. When she fights their plans to spy on the public there is an attempt on her life, so she goes on the run — and finds that their actions have also provided access to millions of phones to a terrorist group planning to carry out the largest attack in history. While evading the world’s intelligence agencies, Aila has to use her wits and creativity to save thousands of lives — including her own.
 
 I think that's better - but way too long. I then edited it down to this:
 
-    After moving to San Francisco, entrepreneur Aila Grant discovers the CIA are behind the investment in her app, so they can spy on the public through smartphones. A terrorist group planning to carry out the largest attack in history has also gained access. While on the run evading the world’s intelligence agencies, Aila has to use her wits and creativity to save thousands of lives — including her own.
+> After moving to San Francisco, entrepreneur Aila Grant discovers the CIA are behind the investment in her app, so they can spy on the public through smartphones. A terrorist group planning to carry out the largest attack in history has also gained access. While on the run evading the world’s intelligence agencies, Aila has to use her wits and creativity to save thousands of lives — including her own.
 
 I'd ideally like to condense it more, but I think that's okay for now.
 
