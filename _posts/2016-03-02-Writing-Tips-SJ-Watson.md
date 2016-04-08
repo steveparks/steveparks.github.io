@@ -69,6 +69,7 @@ Clare's tips to other writers on approaching an agent are:
 * Focus on the quality of the manuscript. Send it only when it's fully finished, and as good as you think you can make it on your own. Make sure the beginning really sets the book up well. Clare never reads a synopsis, and just gets straight into manuscript. She will read three chapters. If she's enjoying it she'll continue.
 
 And her tips on what she's looking for in the writing are:
+
 * A voice and unique point of view.
 * A great ending gets set up well in the first three chapters, check that yours does.
 * Trust the reader to figure things out. don’t explain everything in detail… it’s better to confuse than bore.
