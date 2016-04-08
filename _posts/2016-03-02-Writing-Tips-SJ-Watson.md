@@ -76,10 +76,9 @@ And her tips on what she's looking for in the writing are:
 * Don’t start with weather, looking in the mirror or people waking up.
 * Read your work aloud (or to someone else) - that will help pick up things you miss
 * Don't make the common mistakes she tends to see:
-
- * most often, telling not showing.
- * people say the same thing 1.5 times, edit to
- * don’t say it would make great film in the letter.
+  * most often, telling not showing.
+  * people say the same thing 1.5 times, edit to
+  * don’t say it would make great film in the letter.
  
 * But no advice is absolute - if you need to break the 'rules' though, you have to make it really good.
 
