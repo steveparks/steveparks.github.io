@@ -6,12 +6,6 @@ permalink: /about/
 
 I’m Steve Parks, an entrepreneur, geek, writer and foodie, living in London, England. I began my career as a journalist with the BBC, but then launched my first business at the age of 25 (which was an independent production company supplying the BBC). I’ve launched a few businesses since then. Some have worked, some haven’t — but I’ve learned from them all.
 
-Here are more details about each of my areas of work and interest:
-
-## Work
-
-I’m one of the founders of Wunder, a web consultancy for large organisations and government, with 170 staff in 9 countries across Europe.
-
 ## Writer & Presenter
 
 I write books and articles about entrepreneurship, business and technology. My books are published by Pearson in the UK and by other publishers internationally. You can find out more at my Amazon author page.
