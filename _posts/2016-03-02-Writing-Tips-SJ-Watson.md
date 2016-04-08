@@ -76,9 +76,11 @@ And her tips on what she's looking for in the writing are:
 * Don’t start with weather, looking in the mirror or people waking up.
 * Read your work aloud (or to someone else) - that will help pick up things you miss
 * Don't make the common mistakes she tends to see:
+
  * most often, telling not showing.
  * people say the same thing 1.5 times, edit to
  * don’t say it would make great film in the letter.
+ 
 * But no advice is absolute - if you need to break the 'rules' though, you have to make it really good.
 
 In general, Clare says, agents are getting involved earlier in the process -- at courses, events and so on. They're signing more authors via that route. The quality of the slush pile (or what she calls the Talent Pool) is much lower. They tend to receive a thousand or so unsolicited manuscripts a year, of which they may take on two or three authors. It's better to find a way to build a relationship with an agent, rather than approach them anonymously.
