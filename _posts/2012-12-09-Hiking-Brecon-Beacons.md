@@ -10,6 +10,7 @@ redirect_from: "/2012/12/09/hiking-in-the-brecon-beacons/"
 
 I've just returned from a great weekend trip to the Brecon Beacons in Wales, with hiking in some stunningly beautiful countryside...
 
+
 ![Sign to Pant I Rhew](https://farm4.staticflickr.com/3950/15529878032_f27db3d98c_b.jpg)
 
 ![Canal](https://farm4.staticflickr.com/3948/15343693750_ce75f56d27_b.jpg)
@@ -58,4 +59,3 @@ We stayed in Buckland Hall, a former stately home that now provides a luxurious 
 At the end of a long day walking on Saturday we had definitely earned our place on those sofas in front of the fire, with the bonus that we were able to explore the well stocked bar in the Hall, and one discovery was a bottle of the local gin, which was excellent.
 
 ![Brecon Gin](https://farm4.staticflickr.com/3946/15332771128_a2c7c54eb3_b.jpg)
-
