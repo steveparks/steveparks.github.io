@@ -6,7 +6,7 @@ tags: Writing, Novel
 ---
 ![](https://farm2.staticflickr.com/1564/25702615894_7deba73bf7_b.jpg)
 
-"I spent some time on location during the filming, and on one day there was a particularly emotional scene where Nicole Kidman's character realises *[something key, spoiler redacted]* and runs out into the pouring rain to confront Colin Firth's character..."
+"I spent some time on location during the filming, and on one day there was a particularly emotional scene where Nicole Kidman's character realises *[spoiler redacted]* and runs out into the pouring rain to confront Colin Firth's character..."
 
 Steve (SJ) Watson paints a picture that so many authors dream of, as he describes the lessons he learned from his novel, Before I Go To Sleep, being made into a film.
 
@@ -18,24 +18,22 @@ The lesson Steve drew from this is how much the location and environment can add
 
 [Before I Go to Sleep](http://www.amazon.co.uk/dp/B004TSXUWY/ref=dp-kindle-redirect?_encoding=UTF8&btkr=1) is a psychological thriller that has been translated into 40 languages, is on sale in 44 countries and has sold over 4 million copies. The author, [SJ Watson](http://www.sjwatson-books.com/), and his agent, [Clare Conville](http://www.convilleandwalsh.com/index.php/agents/publishing-agent/clare-conville/), recently gave a talk at the [Curtis Brown Creative](http://www.curtisbrowncreative.co.uk/) course I am on. Each year they select 15 authors to take part, providing weekly sessions with well-known authors and agents to help students develop their novel ready to submit to agents.
 
-What I've found remarkable is just how open and helpful everyone is when speaking to the course students. In this session Steve and Clare gave so much detail about the genesis and publication of the book that will be useful to so many writers.
+What I've found remarkable is just how open and helpful everyone is when speaking to the course students. In this session Steve and Clare were genuinely keen to inspire and help us, and they gave so much detail about the genesis and publication of the book that will be useful to so many writers.
 
 ## Writing the book
 Like many authors, Steve had always wanted to write, but found himself on the path to a more normal career -- doing a physics degree and working in the health service. He always kept writing as hobby, and an ambition.
 
 On reaching his 40th birthday, he says he had a mini mid-life crisis, and decided he had to at least try to become a writer.
 
-"I didn’t want to have never tried, even if I failed. So I decided I had to give it serious attention. I went part time at work -- which meant my take home pay halved and my career was set back nine years -- and I signed up for a writing course with Faber Academy."
+"I didn’t want to have never tried, even if I failed. So I decided I had to give it serious attention. I went part time at work -- which meant my take home pay halved and my career was set back nine years -- and I signed up for a writing course with [Faber Academy](http://www.faberacademy.co.uk/)."
 
 Steve says he decided to think of himself as a writer from that point onwards, even introducing himself that way when he met people. It helped him grow in confidence and commitment.
 
-He had previously worked on other projects, but decided to start a completely new project on the course, which at first was titled The Seahorse Diaries (he says he still cringes at that), and was written as literary fiction.
+He had previously worked on other projects, but decided to start a completely new project on the course, which at first had a different title, and was written as literary fiction.
 
 He didn't plot the book out too much before he started writing, he just focused on getting the story down.
 
 "You need to give yourself permission to do bad writing," he says. "You read other people's work and think it's perfect, and measure your own work by it -- but that's not their first draft. For the first draft, just get the words down, and edit them later. You can’t make nothing into something, but you can make bad into good.
-
-"Comparing the first draft of Before I Go To Sleep to the published version, only about 40% is largely unchanged, 30% has been radically changed, and 30% is brand new."
 
 Through the writing process Steve had been showing it to other people and found he was getting good feedback. He began to feel it had potential.
 
@@ -89,8 +87,7 @@ The editing process, both with the agent and the publisher, was crucial to shapi
 
 "You can make suggestions," Clare says, "But a good writer takes that and runs with it even further."
 
-"The main point was it needed a plot running through it. It
-needed to be in her eyes, showing us what it is like to be her.
+"The main point was it needed a plot running through it. It needed to be in her eyes, showing us what it is like to be her.
 
 "At the beginning there was lots of backstory. This was unnecessary. I also suggested the last part of book should happen in real time so it feels like its happening.
 
@@ -103,8 +100,7 @@ Steve says: "Not doing much plotting in advance made the editing very very compl
 But what was toughest was the usual pain of 'killing your darlings'. "I needed to get rid of long sections of what I thought was the ‘best writing’ - but was actually the boring bits where nothing happened."
 
 ## Getting published
-Steve says the process was amazing, but de-stablising. They
-sent it out on a Wednesday in May to about 20 UK publishers.
+Steve says the process was amazing, but de-stablising. They sent it out on a Wednesday in May to about 20 UK publishers.
 
 In an unusual move, because of her instincts about the book, Clare also sent it to some of the 15 or so literary scouts that represent key foreign publishers.
 
@@ -114,15 +110,22 @@ Steve says: "I was at a friends house having lunch and Clare phoned with the new
 
 This turned out to be the right move as later 13 publishers were bidding against each other. Clare says the decision isn’t just about money, it's also about what the publisher will do with the book
 
-"It was a very stressful period for me," Steve says, "There were emails pinging in all the time every day with updates. Then suddenly I was being asked for a paragraph about my next book and I had to think of a whole new idea too."
+Steve says it was a very busy time: "There were emails pinging in all the time every day with updates. Then suddenly I was being asked for a paragraph about my next book and I had to think of a whole new idea too."
 
 The deal was done, and then a film deal was done quickly afterwards, even before the book was published.
 
 ## The second book
 "I wrote my first novel in state of blissful ignorance," Steve says. "There were no agents, editors, reviewers, or readers. For my second book there was, and suddenly there were a lot of expectations of me.
 
-"I think it's Stephen King who said *'Write your first draft with the door closed, and the second draft with the door open.'* But it was now very difficult for me to keep that door closed. Everyone wanted to know what I was working on, how it was going, wanting me to attend or speak at events, do publicity and so on. And the thing I learned in that times was: don't read Amazon reviews!"
+"I think it was Stephen King who said *'Write your first draft with the door closed, and the second draft with the door open.'* But it was now very difficult for me to keep that door closed. Everyone wanted to know what I was working on, how it was going, wanting me to attend or speak at events, do publicity and so on. And the thing I learned in that times was: don't read Amazon reviews!"
 
-But he got the book done, and [Second Life](http://www.amazon.co.uk/Second-Life-S-J-Watson-ebook/dp/B00OFA20LI/ref=sr_1_1?ie=UTF8&qid=1460128325&sr=8-1&keywords=second+life) is now also published.
+But, once again, he buckled down and got the book done. [Second Life](http://www.amazon.co.uk/Second-Life-S-J-Watson-ebook/dp/B00OFA20LI/ref=sr_1_1?ie=UTF8&qid=1460128325&sr=8-1&keywords=second+life) is now also published, and Steve is currently working on his third novel.
 
-He's now working on his third novel, and he still gets to introduce himself as a writer.
+## In summary
+This was possibly the most useful writing event I have ever been to. Both Steve and Clare were so open, and their enthusiasm for writing was so clear. I loved that both of them seemed so free of ego despite their success, and were keen to help us out on our writing journey too.
+
+I got a lot of really practical advice from the evening, but most of all it fired me up with even more enthusiasm and determination.
+
+It's clear that Steve's story is not typical of most writers, but to simply say he's lucky would be highly unjust. He actively took big steps to put himself in luck's path, and it paid off. He sacrificed income and career progression. He signed up to an expensive course that required a high time commitment. He came up with a good idea that clicked with people. He worked hard to get a first draft done in a short space of time. He had the talent to write. He struck up a relationship with a highly respected agent, and worked at maintaining it. Then he actively listened to feedback that must sometimes have felt like a setback, and put in the effort to rewrite and rewrite until the book was really the best it could be. He showed that having the talent is one part of the recipe, but that it also takes focus and hard work to take that talent beyond a manuscript that sits in your bottom drawer.
+
+That's what it takes to see your story in the bestseller charts and on the big screen, and end up getting writing advice from Nicola Kidman.
